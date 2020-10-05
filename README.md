@@ -1,2 +1,0 @@
-# Javier-Delgado-Naranjo
-TareaGrupal
